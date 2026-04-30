@@ -1,4 +1,4 @@
-$${\textsf{\color{#DEB053}゛summerㅤ}}$$ ${\textsf{\color{#395271}ㅤgreetedㅤeggchanㅤ,ㅤsomehowㅤ𓈒ㅤ〞}}$
+<p align="center"> $${\textsf{\color{#DEB053}゛summerㅤ}}$$ ${\textsf{\color{#395271}greetedㅤeggchanㅤ,ㅤsomehowㅤ𓈒ㅤ〞}}$</p>
 ㅤ
 <p align="center">
   <img src="https://i.postimg.cc/SR8gyBVH/Untitled2323-20260501004502.png" deputy ace" width="500"/>
@@ -24,7 +24,7 @@ https://github.com/user-attachments/assets/ea6dccb0-afa5-4d76-899b-91baa54515ed
 
 ㅤ
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤ[𓂋](https://archiveofourown.org/works/80722706?view_full_work=true)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[𓂋](https://archiveofourown.org/works/80722706?view_full_work=true)
 
 
    </p>
