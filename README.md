@@ -22,10 +22,10 @@
 
 https://github.com/user-attachments/assets/ea6dccb0-afa5-4d76-899b-91baa54515ed
 
-ㅤ
-<div class="center-container">
-  <a href="https://archiveofourown.org/works/80722706?view_full_work=true">𓂋</a>
-</div>
+
+<p style="text-align:center">
+    <a href="https://archiveofourown.org/works/80722706?view_full_work=true">𓂋</a> 
+</p>
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
    </p>
