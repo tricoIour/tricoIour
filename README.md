@@ -38,11 +38,22 @@ https://github.com/user-attachments/assets/bfa7cd1d-df10-4df8-b337-f6c4aefe3d0f
 <p align="center">
 <a href="https://archiveofourown.org/works/80722706/chapters/212026031">𓂋</a>
 </p>
- 
-</p>
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
-   </p>
+ ㅤ
+
+<p align="center">
+  <img src="https://images2.imgbox.com/17/a6/lDIhlmwk_o.jpg" deputy ace" width="500"/>
+</p>
+ㅤ
+<p align="center"> $${\textsf{\color{#395271}𓎢𓎟𓎡}}$$‎
+</p>
+ㅤ
+ㅤ<p align="center">
+  <img src="https://images2.imgbox.com/12/0b/b5Jb9hsD_o.jpg" deputy ace" width="500"/>
+</p>
+<p align="center"> $${\textsf{\color{#395271}myㅤrequestㅤ🥹}}$$‎
+</p>ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
+
 
 ‎ ‎ ‎ ‎ ‎‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ 
  
