@@ -1,3 +1,6 @@
+<p align="center">
+   <img src="https://i.postimg.cc/PrGn9cMf/Untitled2455-20260704172402.png" width="15" />
+ </p>
 <p align="center"> $${\textsf{\color{#EC2A47}゛}}$$ $${\textsf{\color{#EC2A47}soㅤprepareㅤforㅤ}}$$ $${\textsf{\color{#77BF49}theㅤimpactㅤ—ㅤand}}$$ ${\textsf{\color{#3F48CC}ㅤbraceㅤyourㅤheartㅤ𓈒ㅤ𓈒ㅤ〞}}$</p>
 
 ㅤ
@@ -5,24 +8,45 @@
   <img src="https://i.postimg.cc/V66g6Gst/Untitled2456-20260704173114.png" jophiel" width="500"/>
 </p>
 ㅤ
-<p align="center"> $${\textsf{\color{#EC2A47}prns.cc}}$$<a href="pronouns.cc/@mostlychimes">ꜝ</a>$${\textsf{\color{#000000}     }}$$ $${\textsf{\color{#000000}     }}$$ $${\textsf{\color{#000000}     }}$$ $${\textsf{\color{#77BF49}ata}}$$  <a href="jophieloftricolour.atabook.org">ꜝ</a> $${\textsf{\color{#000000}     }}$$ $${\textsf{\color{#000000}     }}$$ $${\textsf{\color{#3F48CC}straw}}$$
+<p align="center"> $${\textsf{\color{#EC2A47}prns.cc }}$$<a href="pronouns.cc/@mostlychimes">ꜝ</a>$${\textsf{\color{#000000}     }}$$ $${\textsf{\color{#000000}     }}$$ $${\textsf{\color{#77BF49}ata}}$$  <a href="jophieloftricolour.atabook.org">ꜝ</a> $${\textsf{\color{#000000}     }}$$ $${\textsf{\color{#000000}     }}$$ $${\textsf{\color{#3F48CC}straw}}$$
 <a href="cajolent.straw.page">ꜝ</a></p>
 
+  
+<p align="center">
+‎ 
+   </p>
+    
+ 
+<p align="center">
+  <img src="https://i.postimg.cc/9fdL4wjd/tumblr-ae145b0065f120fccbdc980936f82de8-8241252d-1280.png" jophiel" width="55"/>
+</p>
+ㅤ
+<p align="center"> $${\textsf{\color{#238470}𓎢𓎟𓎡}}$$‎
+</p>
 
-ㅤ
-<p align="center"> $${\textsf{\color{#395271}𓎢𓎟𓎡}}$$‎
+<p align="center">
+‎ 
+   </p>
+
+<p align="center"> $${\textsf{\color{#238470}𓆩}}$$ $${\textsf{\color{#17666B}ponytown's}}$$‎ <a href="github.com/title-town">jophiel</a> $${\textsf{\color{#000000}  }}$$ $${\textsf{\color{#238470}𔘓}}$$</p>  
+<p align="center"> $${\textsf{\color{#000000}  }}$$ $${\textsf{\color{#17666B}thank you }}$$ <a href="github.com/pt-players">pt-players!</a> $${\textsf{\color{#238470}𓆪}}$$
+</p>
+
+<p align="center">
+‎ 
+   </p>
+   
+<p align="center"> 
+  <img src="https://i.postimg.cc/BQ8cL79f/Untitled2456-20260704191135.png" width="150"/>
 </p>
 ㅤ
-<p align="center">
-  <img src="https://i.postimg.cc/j5fHNzNV/Untitled2296-20260501003642.png" width="100"/> <img src="https://i.postimg.cc/44zvxQsb/Untitled2296-20260501003710.png" width="100"/>
+<p align="center"> $${\textsf{\color{#17666B}₊˚ ✧ ━}}$$ $${\textsf{\color{#238470}━━}}$$ $${\textsf{\color{#31946E}━ ⊱⋆⊰ ━}}$$ $${\textsf{\color{#238470}━━}}$$ $${\textsf{\color{#17666B}━ ✧ ₊˚}}$$‎
 </p>
-<p align="center">
- <img src="https://i.postimg.cc/HkS9CWdd/Untitled2296-20260501003943.png" width="100"/> <img src="https://i.postimg.cc/8PmbtBYh/Untitled2296-20260501003647.png" width="100"/>
- </p>
  ㅤ
  <p align="center">
-   <img src="https://i.postimg.cc/rsJQ01XF/Untitled2325-20260501014740.png" width="50" />
+   <img src="https://i.postimg.cc/y6D7w0Cs/Untitled2455-20260704172304.png" width="75" />
  </p>
 
-ㅤ
+ㅤ<p align="center"> $${\textsf{\color{#238470}art credits ; shadowwwooo 𓈒 nikkonmc}}$$‎
+</p>
 
