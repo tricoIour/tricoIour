@@ -8,8 +8,8 @@
   <img src="https://i.postimg.cc/V66g6Gst/Untitled2456-20260704173114.png" jophiel" width="500"/>
 </p>
 ㅤ
-<p align="center"> $${\textsf{\color{#EC2A47}prns.cc }}$$<a href="pronouns.cc/@mostlychimes">ꜝ</a>$${\textsf{\color{#000000}     }}$$ $${\textsf{\color{#000000}     }}$$ $${\textsf{\color{#77BF49}ata}}$$  <a href="jophieloftricolour.atabook.org">ꜝ</a> $${\textsf{\color{#000000}     }}$$ $${\textsf{\color{#000000}     }}$$ $${\textsf{\color{#3F48CC}straw}}$$
-<a href="cajolent.straw.page">ꜝ</a></p>
+<p align="center"> $${\textsf{\color{#EC2A47}prns.cc }}$$<a href="https://pronouns.cc/@mostlychimes">ꜝ</a>$${\textsf{\color{#000000}     }}$$ $${\textsf{\color{#000000}     }}$$ $${\textsf{\color{#77BF49}ata}}$$  <a href="https://jophieloftricolour.atabook.org">ꜝ</a> $${\textsf{\color{#000000}     }}$$ $${\textsf{\color{#000000}     }}$$ $${\textsf{\color{#3F48CC}straw}}$$
+<a href="https://cajolent.straw.page">ꜝ</a></p>
 
   
 <p align="center">
