@@ -56,5 +56,5 @@
 
 https://github.com/user-attachments/assets/fd84a7a4-ea6f-4205-8d8f-8662245632fe
 
-<p align="center"> $${\textsf{\color{#238470}seraphiel truther since 07.16.2025}}$$‎
+<p align="center"> $${\textsf{\color{#238470}seraphiel truther since 07.12.2025}}$$‎
 </p>
