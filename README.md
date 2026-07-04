@@ -50,3 +50,11 @@
 ㅤ<p align="center"> $${\textsf{\color{#238470}art credits ; shadowwwooo 𓈒 nikkonmc}}$$‎
 </p>
 
+<p align="center">
+‎ 
+   </p>
+
+https://github.com/user-attachments/assets/fd84a7a4-ea6f-4205-8d8f-8662245632fe
+
+<p align="center"> $${\textsf{\color{#238470}seraphiel truther}}$$‎
+</p>
