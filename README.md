@@ -1,11 +1,13 @@
-<p align="center"> $${\textsf{\color{#395271}゛}}$$ $${\textsf{\color{#DEB053}summerㅤ}}$$ ${\textsf{\color{#395271}greetedㅤeggchanㅤˏㅤsomehowㅤ𓈒ㅤ〞}}$</p>
+<p align="center"> $${\textsf{\color{#EC2A47}゛}}$$ $${\textsf{\color{#EC2A47}soㅤprepareㅤforㅤ}}$$ $${\textsf{\color{#77BF49}theㅤimpactㅤ—ㅤand}}$$ ${\textsf{\color{#3F48CC}ㅤbraceㅤyourㅤheartㅤ𓈒ㅤ𓈒ㅤ〞}}$</p>
 
 ㅤ
 <p align="center">
-  <img src="https://i.postimg.cc/SR8gyBVH/Untitled2323-20260501004502.png" deputy ace" width="500"/>
+  <img src="https://i.postimg.cc/V66g6Gst/Untitled2456-20260704173114.png" jophiel" width="500"/>
 </p>
 ㅤ
-<p align="center"> $${\textsf{\color{#395271}ponytown's}}$$ ${\textsf{\color{#395271}jophie}}$<a href="https://github.com/title-town">l</a></p>
+<p align="center"> $${\textsf{\color{#EC2A47}prns.cc}}$$<a href="pronouns.cc/@mostlychimes">ꜝ</a>$${\textsf{\color{#000000}     }}$$ $${\textsf{\color{#000000}     }}$$ $${\textsf{\color{#000000}     }}$$ $${\textsf{\color{#77BF49}ata}}$$  <a href="jophieloftricolour.atabook.org">ꜝ</a> $${\textsf{\color{#000000}     }}$$ $${\textsf{\color{#000000}     }}$$ $${\textsf{\color{#3F48CC}straw}}$$
+<a href="cajolent.straw.page">ꜝ</a></p>
+
 
 ㅤ
 <p align="center"> $${\textsf{\color{#395271}𓎢𓎟𓎡}}$$‎
@@ -23,45 +25,4 @@
  </p>
 
 ㅤ
-
-https://github.com/user-attachments/assets/ea6dccb0-afa5-4d76-899b-91baa54515ed
-
-
-
-
- ‎ ‎‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ 
-
-https://github.com/user-attachments/assets/05878c47-4939-489e-97ec-5da34ebb2492
-
-
-
-
-
-https://github.com/user-attachments/assets/bfa7cd1d-df10-4df8-b337-f6c4aefe3d0f
-
-<p align="center">
-<a href="https://archiveofourown.org/works/80722706/chapters/212026031">𓂋</a>
-</p>
-
- ㅤ
-
-<p align="center">
-  <img src="https://images2.imgbox.com/17/a6/lDIhlmwk_o.jpg" deputy ace" width="500"/>
-</p>
-ㅤ
-<p align="center"> $${\textsf{\color{#395271}𓎢𓎟𓎡}}$$‎
-</p>
-ㅤ
-ㅤ<p align="center">
-  <img src="https://images2.imgbox.com/12/0b/b5Jb9hsD_o.jpg" deputy ace" width="500"/>
-</p>
-<p align="center"> $${\textsf{\color{#395271}myㅤrequestㅤ🥹}}$$‎
-</p>ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
-
-
-‎ ‎ ‎ ‎ ‎‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ 
- 
-<p align="center"> $${\textsf{\color{#395271}artㅤcredsㅤ;ㅤ@ydmnnn}}$$‎
-</p>
-
 
