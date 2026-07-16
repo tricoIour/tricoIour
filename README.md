@@ -29,7 +29,7 @@
    </p>
 
 <p align="center"> $${\textsf{\color{#238470}𓆩}}$$ $${\textsf{\color{#17666B}ponytown's}}$$‎ <a href="https://github.com/title-town">jophiel</a> $${\textsf{\color{#000000}  }}$$ $${\textsf{\color{#238470}𔘓}}$$</p>  
-<p align="center"> $${\textsf{\color{#000000}  }}$$ $${\textsf{\color{#17666B}thank you }}$$ <a href="https://github.com/pt-players">pt-players!</a> $${\textsf{\color{#238470}𓆪}}$$
+<p align="center"> $${\textsf{\color{#000000}  }}$$ $${\textsf{\color{#17666B} }}$$ <a href="https://github.com/pt-players">pt-players</a> <a href="https://github.com/pt-walk-of-fame">pt-walk-of-fame </a>$${\textsf{\color{#238470}𓆪}}$$
 </p>
 
 <p align="center">
